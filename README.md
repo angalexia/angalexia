@@ -5,7 +5,7 @@
 - 📫 How to reach me por apps de mensagem
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact:gosto de ler e estudar, escutar música, passar um tempo com a minha família e amigos.
-- skills: entender conteúdos escolares rápido 
+- 🤹‍♂️ skills: entender conteúdos escolares rápido 
 <!---
 angalexia/angalexia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
